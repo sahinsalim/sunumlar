@@ -1,6 +1,6 @@
 # Sunumlar
 
-1- [Salim Şahin](https://www.canva.com/design/DAGc_1R8e10/8xkMi-psa-EBTYi-tBwqIA/edit?utm_content=DAGc_1R8e10&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+1- [Salim Şahin]([https://www.canva.com/design/DAGc_1R8e10/8xkMi-psa-EBTYi-tBwqIA/edit?utm_content=DAGc_1R8e10&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGp_aYYEM0/4ZfrX63n7x7DRR87-LpwBg/edit))
 <br>
 2- [Habiba](https://www.canva.com/design/DAGc_1bn1Dk/9FXGsNccFRt4Iddeabo09w/edit?utm_content=DAGc_1bn1Dk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 <br>
