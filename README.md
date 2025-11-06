@@ -19,3 +19,6 @@ https://we.tl/t-9wY3VfxSnQ
 
 
 https://docs.google.com/presentation/d/12icmCmYntVEslcDhLhtigLguhq_vcWf7/edit?usp=drivesdk&ouid=100298878140141516883&rtpof=true&sd=true
+
+
+https://docs.google.com/presentation/d/13dc1Mz9sXylPSu7zMsrMIQ8AikDFeZ1e/edit?usp=drivesdk&ouid=100298878140141516883&rtpof=true&sd=true
