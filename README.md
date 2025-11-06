@@ -16,3 +16,6 @@ https://www.canva.com/design/DAG17zzHwq0/B-FeLkoIJIYNaA41PFH-nw/edit?utm_content
 
 
 https://we.tl/t-9wY3VfxSnQ
+
+
+https://docs.google.com/presentation/d/12icmCmYntVEslcDhLhtigLguhq_vcWf7/edit?usp=drivesdk&ouid=100298878140141516883&rtpof=true&sd=true
